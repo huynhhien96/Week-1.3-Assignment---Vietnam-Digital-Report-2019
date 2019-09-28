@@ -1,5 +1,4 @@
 # Week-1.3-Assignment---Vietnam-Digital-Report-2019
-Assignment Objectives
 Huỳnh Đức Hiền - PM lớp thứ 2 và 4
 
 Week 1.3 Assignment - Vietnam Digital Report 2019
