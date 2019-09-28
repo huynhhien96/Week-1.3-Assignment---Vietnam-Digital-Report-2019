@@ -3,9 +3,13 @@ Assignment Objectives
 Huỳnh Đức Hiền - PM lớp thứ 2 và 4
 
 Week 1.3 Assignment - Vietnam Digital Report 2019
+
 Assignment Objectives
+
 This assignment will test your ability to try and analyze why some products are successful. The job of a product manager is to think systematically about how to make successful products.
+
 Assignment Brief
+
 1. Problem Statement
 2. Business Summary
 
